@@ -1,3 +1,0 @@
-# jeffreygwang-com
-
-Personal website!
